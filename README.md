@@ -1,4 +1,4 @@
-
 # My Switch Mod
 
-Download: [Download Mod (ZIP)](YOUR_DOWNLOAD_LINK_HERE)
+Download:
+ [Switch(ZIP)](https://mega.nz/file/nr5lAR4a#C056M5kuQ-tj5rHvTTS_4gUyhO1a1VSzMqKq4b070JE)
