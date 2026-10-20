@@ -1,4 +1,4 @@
-SuperMarioLuigiOdyssey2PlayersCO-OP
+#1P/2P CO-OP Mod for SuperMarioOdyssey
 
 Download:
 
