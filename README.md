@@ -8,4 +8,4 @@ Download:
 
 [Ryujinx](https://mega.nz/file/C2BwlabQ#5eBkh1qD8FAA62Kra_Cqjtc6gfgGcCIsjM63B10t7NI)
 
-[Eden](https://mega.nz/file/C2BwlabQ#5eBkh1qD8FAA62Kra_Cqjtc6gfgGcCIsjM63B10t7NI)
+[Eden](https://mega.nz/file/T6gEWR6b#8Du7TwILI3pPLXa6MMFANBTviCVNtFuOUXLzNZ_PfKQ)
