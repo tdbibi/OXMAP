@@ -2,4 +2,4 @@
 
 Characters: Luigi,Wario,Mummy,BB Mario,BB Luigi,Koopa
 
-[Final](https://mega.nz/file/KywT3DJR#DXJtVJ2tvmANtLmCoyUcAb5AaCrqt7PwPxStV9Y5u4A)
+[Final](https://mega.nz/file/XnBUEZzL#nEth5Z4lOI36HJa4l0lbpYoyuEx6CxSipw_uSYi6I3Y)
